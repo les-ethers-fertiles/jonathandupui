@@ -1,5 +1,5 @@
-baseURL: /jonathandupui
-languageCode: en-us
+baseURL: /
+languageCode: fr-fr
 defaultContentLanguage: en
 title: jo
 theme: cupper-hugo-theme

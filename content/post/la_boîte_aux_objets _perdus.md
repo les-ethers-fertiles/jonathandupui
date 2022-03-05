@@ -1,0 +1,364 @@
+---
+title: "LA BOÎTE AUX OBJETS PERDUS"
+date: 2016-12-15T00:29:41-06:00
+tags: ["quotes"]
+---
+
+
+Retouner à l'objet de concentration.\
+Retourner au plaisir rencontré.\
+Relier et relier.
+___
+
+
+J'en ai perdu le soleil.
+___
+
+
+Il y a une chance de dévoilé ce qui est.
+___
+
+
+Tu ne peux pas savoir ce que c'est que de jouer avec toi, public.
+___
+
+
+Ne nous montrons pas nos larmes, s'il vous plaît !! On tuerait le capitalisme...
+___
+
+
+Ne vois-tu pas la peine embrassée dans la joie ?
+___
+
+
+Est-ce qu'on le sait ? Que nous sommes la vague fraîche de l'expérience humaine, que c'est notre tour, notre chance, de contempler par une profonde introspection de ce que nous sommes, de qui nous sommes, la sincérité de notre perception du monde.
+___
+
+
+L'enfant appelle le monde à demeurer public.
+___
+
+
+DOIS-JE\
+VOUS RAPPELER\
+QUE JE\
+SUIS LÀ\
+POUR DE FAUX ?\
+-un clown-
+___
+
+
+On va vers où va le jeu\
+parce que c'est là que ça va.\
+Quel jeu alors est-il bon de jouer ?
+___
+
+
+Merci, nature, de m'avoir fait si sensible.\
+Adieu, bêtise, de m'avoir empêché\
+De dire, enfin, cela.
+
+Merci,\
+Adieu.
+___
+
+
+Toutes les\
+Idées\
+Ne devraient pas se raconter,\
+Autrement\
+Que pour L'amour.\
+___
+
+
+Toutes demandes\
+Doivent être\
+Formulées\
+Depuis la réalité\
+De la liberté de réponse.
+___
+
+
+Peu importe le visage,\
+Dévoile.
+___
+
+
+Si seulement vous entendiez l'expression tel quelle se présente.
+___
+
+
+L'écriture n'est qu'un je.
+___
+
+
+Je ne comprends pas votre parole, Monsieur.\
+Je comprends vos mots.\
+Je vois votre allure et ne comprends pas pourquoi ces mots sortent de votre bouche.\
+Vous venez cherchez quelque chose qu'il serait plus juste de nommer.\
+De votre allure émane une mauvaise odeur.\
+Je préfère m'écarter.\
+Ou bien, parlez-moi.
+___
+
+
+Pour qui ton expression est-elle faite ?
+___
+
+
+Quand sommes-nous devenus conscient de la curiosité ?\
+Alors que nous étions entièrement baignés dans le spectacle.\
+Est-ce que la parole est arrivée à ce moment ?
+___
+
+
+Rions ensemble,\
+En toutes circonstances.
+___
+
+
+Le jeu de l'amour peut se faire avec n'importe qui,\
+Tant que nous savons que nous allons faire de la merde.
+___
+
+
+Nous sommes capable de reconnaître\
+Notre désir de reconnaissance.\
+Mais nous sommes incapable de l'avouer...\
+On devrait le reconnaître.
+___
+
+
+Il n'y a pas plus\
+Chef\
+Que le dévoué,\
+le larbin aimant,\
+L'esclave heureux,\
+La femme castrée.
+___
+
+
+Avez-vous\
+Vraiment\
+Écouté.
+
+Écoutez cette autre chose.
+
+Avez-vous\
+Vraiment\
+Écouté cet ailleurs.
+
+Cet ailleurs entendu au centre, du centre.
+
+Comme si\
+L'ailleurs et l'ici\
+Étaient miroir du vide.
+___
+
+
+Père, ici, ton fils te voit.\
+L'insignifiance est ta lumière.
+___
+
+
+Elle surface sur la vague de l'hystérie.\
+"Alors donne-moi la main, mais pas comme ça!...\
+Tu sais que je préfère la mettre comme ça."
+
+"Ne regarde pas dans les yeux !"\
+Voilà une phrase, une expression qui porte un conditionnement vraiment... Vraiment trop lourd.
+___
+
+
+Madame,\
+Votre chien à la parole.\
+Et j'aimerai vous dire que ce n'est pas "son maître" qu'aime le chien.
+___
+
+
+Il n'y a jamais eu meilleur équilibre entre les choses que lorsque je m'arrêtais à l'observation.\
+Ce qui a toujours pété l'équilibre fût de m'être persuadé que j'y étais pour quelque chose.\
+Alors que moi, tout le monde sait que je ne peux me voir par moi.
+___
+
+
+Qui est celui qui reçoit mes mots ?
+___
+
+
+Laissons la liberté être,\
+Et pendant que l'on parle\
+Observons où notre attention se tourne.
+___
+
+
+"Ce dont j'ai l'air compte plus que ce qu'il y a à voir."
+Après cette pensée, c'est normal de voir la vie se dérouler simplement.
+Et je peux en rajouter une couche avec cette autre pensée :
+"Le monde est pourri."
+___
+
+
+Il y aura un moment certains ou le monde et tout ce qui le peuple, recevra le monde et tout ce qui le peuple tel que le monde et tout ce qui le peuple sont.\
+Étant.
+___
+
+
+Les amoureuses ou La certitude du "savoir-aimer"
+
+Il existe une place...\
+Il existe une place, certaine...\
+Une place certaine à laquelle l'autre a à aimer l'amoureuse.\
+Car l'amoureuse en sait quelque chose, de l'amour.\
+
+Et, si, ici, l'autre bouge de cette flamme déjà pré-dessiné,\
+L'amoureuse peut croire que les ténébres l'avalera.
+Et l'autre, à ce moment, n'aura plus de place pour
+...
+___
+
+
+“Tant que le public l’est”
+
+Tant que le public l’est, alors laissons faire.
+Tant que le public l’est, alors ne touchons à rien.
+Car ce n’est qu'à cela, que nous pouvons espérer nous reconnaître.
+Tant que le public l’est.
+___
+
+
+JE\
+suis pile poil\
+dans le milieu de la culture !\
+Mais il n'y a personne ici...\
+Ici, ça ne fait que tourner autour...
+___
+
+
+On ne sait absolument rien de ce que nous sommes,\
+Et lutter ne sert à rien.
+___
+
+
+Corriger, C'est commencer à mettre en scène.\
+Qu'est-ce qu'on n'a pas à corriger ?
+___
+
+
+SINGULARITÉ
+
+Toutes recherches de singularité\
+Gardent la tentative d'appartenance,\
+Être chercheur est commun.
+___
+
+
+Que se passe-t-il si tu n'écoutes pas ?\
+Où veux-tu en venir ?
+Comment fais-tu pour tout compter ?
+___
+
+
+Tu ne pourras jamais être aimé...\
+Fais-toi une raison, si tu veux, ça te donnera l'occasion d'appartenir à la masse.
+
+À la masse des problèmes mondiaux.\
+Regroupable comme un même problème : Ne pas être aimer.\
+Tu ne pourras jamais être aimé.
+Il n'y a que toi pour offrir cela.
+___
+
+
+Un aveugle et un sourd se rapprochent lentement l'un de l'autre.\
+Le sourd voit l'aveugle.\
+L'aveugle entend le sourd.\
+L'aveugle dit : "bonjour."
+Le sourd s'en va.
+Le sourd se dit : "ça sert à rien..."
+L'aveugle se dit : "quel connard..."
+___
+
+
+La relecture est-elle le résultat de la pensée oubliée ?\
+Permet-elle de récupérer la suite de la pensée perdue ?\
+Est-ce que la relecture est l'action...
+___
+
+
+du souvenir. Oui!
+___
+
+
+L'action de penser et l'action d'écrire sont deux vitesses dsitinctes.\
+Faut-il apprendre à ralentir la pensée, ou à écrire plus vite ?
+___
+
+
+Si seulement toutes les pensées pouvaient s'allonger sur le papier.
+___
+
+
+L'histoire est la boucle,\
+Créée par les mouvement des corps et les sons des voix.\
+La boucle révèle l'esprit.\
+L'esprit est l'élan par lequel corps et voix s'offrent.\
+Mais l'esprit est sans mot dans la boucle de l'histoire.
+___
+
+
+
+La seule chose qui permet d'identifier une histoire,\
+Quelle soit personnelle ou créer,\
+N'a jamais été son créateur.
+
+LE créateur n'existe pas,\
+Il n'y a que le témoin de la création qui "possède" la vision de l'histoire.
+Et quand on cherche à avoir la plus belle histoire, on oublie où il faut l'observer.
+___
+
+
+La parole juste est celle qui appelle le silence,\
+Puisqu'elle ne fait qu'en venir.
+L'expression n'a à jaillir que de l'écoute. que d'une situation.\
+Voilà l'espace pour l'interprétation.
+L'interprète ne peut interpréter que ce qu'il a face à lui, englobant.\
+Englobant les gens, l'histoire, l'ambiance... La situation en somme.
+
+Aucun exercice ne se fait sans un public, s'il vous plaît.
+___
+
+
+Ne suivre aucun courant,\
+Ça fait perdre l'écoute.
+___
+
+
+Je vis la chute dans les tréfonds de la solitude.\
+Cette sensation d'être effacer de la surface de la terre.\
+Je crie : "Le monde m'a jeté !"\
+Et je chute.
+
+Je pourrais ainsi déplorer le monde,\
+crier de douleur,\
+appeler à l'aide.\
+
+Mais je mentirais.\
+Car il n'y a aucun sol à cette fin de chute,\
+Je n'arriverai à aucun bout de quoi que ce soit,\
+Et mes souffrances exprimées de solitude parlent toujours à quelqu'un.
+
+La seule chose qui s'efface,\
+C'est moi,\
+Et pas le monde.
+
+La douleur n'est qu'un jeu pour tirer la couverture vers moi.
+___
+
+
+
+
+
+
+
+
+-jo-

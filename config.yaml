@@ -17,7 +17,7 @@ imaging:
   quality: 99
 
 params:
-  description: Cahier de textes de Jonathan Dupui.
+  description: Cahiers de textes de Jonathan Dupui.
   homeMetaContent: Cahier de textes de Jonathan Dupui.
   footer: Made with [Hugo](https://gohugo.io/). Themed by [Cupper](https://github.com/zwbetz-gh/cupper-hugo-theme). Deployed to [Netlify](https://www.netlify.com/).
   # For more date formats see https://gohugo.io/functions/format/

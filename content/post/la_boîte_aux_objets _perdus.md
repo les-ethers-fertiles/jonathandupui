@@ -365,6 +365,32 @@ Le monde sans pensée s'offre.
 ___
 
 
+Peut-être auriez-vous entendu parler d'une vie de châteauau milieu d'un camp de Bulgares qui attend son château ? Et, saviez-vous que, telle une vie de château, vous y êtes déjà les bienvenu.e.s.
+___
+
+
+Comment est-il possible que les enfants soient lme problème ?
+___
+
+
+J'ai découvert que j'avais la possibilité libre de pouvoir aboserver avec une radicalité incroyable, avec la précision du hibou.\
+Mais pour cela, il fallait que je me place à distance par rapport aux choses de tout type.
+___
+
+
+Sois l'importance que tu vois dans nos yeux.\
+Alors arrête de la quemender.
+___
+
+
+Même si je ne suis plus là par pour participer au mouvement du monde, à la vague vivante, qu'est-ce qui touchera à sa fin ?
+___
+
+
+Il y a quelque chose de caché derrière les plus fortes odentités.
+___
+
+
 
 
 

@@ -36,3 +36,7 @@ Mais nous ne sommes pas idiots, nous savons par quoi vous allez devoir passer. P
 On vous en prie, gardez bien en mémoire pour qui vous faites cela. Ce n’est qu’ainsi que nous pourrons vous soutenir, vous estimer et vous aimer. Mais entendez notre méfiance, elle est votre route. Ainsi nous deviendrons votre joie.
 
 Votre première action est donc bien d’avouer votre intérêt personnel, de le lâcher au monde et de laisser le monde s’en occuper pour vous; de lui faire confiance en quelque sorte, tout comme vous nous demander, sans l’exprimer, de vous faire confiance. Ou encore de l’abandonner, si le monde n’en fait rien. Et acceptez de voir que vous n’avez jamais eu une quelconque autorité. Aucun pouvoir. Qu’il n’y a toujours eu que l’acceptation de ce que vous racontiez par les autres pour leurs propres intérêts. Et le goût exquis de la domination n’a toujours offert qu’une réalité nauséabonde. Aucune entente. Et voilà pourquoi le monde fantasmé ne fonctionne pas. Et le vrai monde est là, il n’a pas besoin de vos projections. Et il vous attend. Il ne reste plus qu’à savoir comment vous allez l’accueillir. De la même manière, comment vous allez accueillir nos propos. Qu’avons-nous à faire si vous n’en faites rien ? “
+
+
+
+-jo-

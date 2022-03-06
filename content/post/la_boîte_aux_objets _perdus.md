@@ -355,6 +355,16 @@ La douleur n'est qu'un jeu pour tirer la couverture vers moi.
 ___
 
 
+SI NOUS NOUS METTONS À RACONTER NOS BONNES ACTIONS, NOUS EN FAISONS DES MAUVAISES.
+___
+
+
+Le monde sous une pensée sera contredite.\
+Le monde sous deux pensées seront rejetées.\
+Le monde sans pensée s'offre.
+___
+
+
 
 
 

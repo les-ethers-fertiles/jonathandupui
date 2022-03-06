@@ -15,7 +15,7 @@ Mais ce "détour", lui, est rempli de l'incertitude de retrouver le flot de l'en
 - celui qui se produit en interne,
 - celui de l'attente de l'écoute.
 
-L'attente de l'écoute [à jouer]
+L'attente de l'écoute [à jouer]\
 La discipline du jeu exige, ensuite, d'être dans la reconnaissance qu'il y a, à chaque instant, quelque chose qui observe ; où même "l'attente de l'écoute" y est vu.
 Étant dans l'espace du jeu, donc de la présence, ne pas accepter d'avoir été vu signifierait vouloir montrer autre chose.
 

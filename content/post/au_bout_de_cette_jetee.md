@@ -82,4 +82,4 @@ Où le phare s'en est allé.
 
 -jo-
 
-<img class="img-responsive" src="/images/post/nasa-images/earth_huaae7be4ba70df7325b57cd351ea21ee7_518573_700x0_resize_q75_box.jpg" alt="">
+<img class="img-responsive" src="/themes/cupper-hugo-theme/static/images/jo_pzr_galant_pour_cupper.jpg" alt="">

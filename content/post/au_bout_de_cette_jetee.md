@@ -82,4 +82,4 @@ Où le phare s'en est allé.
 
 -jo-
 
-<a href="https://goopics.net/i/n1al0u"><img src="https://i.goopics.net/n1al0u.jpg" alt="Image"></a>
+[![Image](https://i.goopics.net/n1al0u.jpg)](https://goopics.net/i/n1al0u)

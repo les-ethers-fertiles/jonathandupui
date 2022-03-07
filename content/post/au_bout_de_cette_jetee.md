@@ -83,3 +83,5 @@ Où le phare s'en est allé.
 -jo-
 
 [![Image](https://i.goopics.net/n1al0u.jpg)](https://goopics.net/i/n1al0u)
+
+*Peinture à l'aquarelle de Cynthia Perrein*

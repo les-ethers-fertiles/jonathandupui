@@ -13,7 +13,7 @@ ___
 ___
 
 
-"Jen e parle pas pour que tu m'écoutes..."
+"Je ne parle pas pour que tu m'écoutes..."
 ___
 
 

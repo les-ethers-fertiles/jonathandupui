@@ -82,4 +82,4 @@ Où le phare s'en est allé.
 
 -jo-
 
-<img class="img-responsive" src="/themes/cupper-hugo-theme/static/images/jo_pzr_galant_pour_cupper.jpg" alt="">
+<a href="https://goopics.net/i/n1al0u"><img src="https://i.goopics.net/n1al0u.jpg" alt="Image"></a>

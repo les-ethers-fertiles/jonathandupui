@@ -1,3 +1,10 @@
+---
+title: "LA DISCIPLINE DU JEU 12/#"
+date: 2016-12-15T00:29:41-06:00
+tags: ["quotes"]
+---
+
+
 Qui que nous soyons,
 Nous pouvons être certains que l'art du comédien est la retranscription du mouvement du vivant par l'action du corps, de la parole, des émotions et du mental.
 Nous pouvons également reconnaître qu'un comédien a à s'habiller d'autres noms, d'autres histoires, et d'autres désirs. Donc même d'autres secrets, blocages et idées de lui-même.

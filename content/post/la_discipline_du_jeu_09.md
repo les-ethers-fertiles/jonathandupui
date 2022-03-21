@@ -1,5 +1,5 @@
 ---
-title: "LA DISCIPLINE DU JEU 9/#"
+title: "LA DISCIPLINE DU JEU 09/#"
 date: 2016-12-15T00:29:41-06:00
 tags: ["quotes"]
 ---

@@ -387,8 +387,114 @@ Même si je ne suis plus là par pour participer au mouvement du monde, à la va
 ___
 
 
-Il y a quelque chose de caché derrière les plus fortes odentités.
+Il y a quelque chose de caché derrière les plus fortes identités.
 ___
+
+
+Il ya autre chose que les concepts,
+Il y a un avant l'analyse.
+
+Sans les concepts et sans analyse,
+Il est possible de marcher sur le chemin de la vie.
+
+Arrêtons de nous parler de ce que nous savons. Parlons plutôt à l'autre.
+Que pouvons donc nous dire ?
+___
+
+
+Si on veut jouer au devenir du monde,
+Alors soi même et l'autre ne peuvent plus être un jeu à jouer.
+___
+
+
+Toi,
+
+Qui veut vivre avec les autres,
+Que peux-tu faire de mes mots ?
+Si mes mots condamnent d'office ta volonté de vivre avec les autres.
+Qu'est-ce que tu peux bien faire de cela ?
+N'en suis-je pas un ?
+Pourquoi as-tu encore besoin de ta volonté ?
+Je suis là, je suis là.
+Pourquoi tiens-tu à ta volonté ?
+Tous les autres sont là, aussi. Tous les autres.
+
+Serais-tu en train de mentir ?
+Prends garde, personne ne te fera confiance, si tu continues dans le mensonge.
+___
+
+
+Nous avons tous vécu, il me semble, ce sentiment d'insupportabilité de devoir se plier à ce que l'autre se raconte.
+Comme si l'utilité du language était râtée. Comme si nous savions que si des mots sortent de la bouche de l'autre, ils ne devraient exister que pour nos oreilles.
+___
+
+
+S'il vous plaît,
+Laissons à l'autre les clés du jeu auquel on joue.
+Parce si nous ne le faisons pas, ce n'est pas du jeu, c'est une démarche pour écraser l'autre.
+Et si nous nous prenons au sérieux, comment trouver où il y a jeu ?
+___
+
+
+Sur le territoire français, depuis le début du XXIème siècle,
+Une des grosse bêtise commise fût faite par
+L'homme ayant déclaré "j'ai tué Charlie".
+Car, l'ensemble de la collectivité à repondu telle une même voix, ce qui n'avait jamais été entendu de mon vivant : "je suis charlie".
+Pour lui indiquer que ce n'était pas Charlie Hebdo que l'homme avait tué.
+Juste des vies.
+La grande tristesse de cette histoire, c'est que nous n'avons pas eu le temps d'avoir ses retours,
+Sur notre parole commune.
+Que serait devenu le territoire français si nous avions eu le temps pour entendre ses retours, aurait-il été d'accord de ne pas avoir réussi à tué Charlie. Est-ce qu'il aurait avoué que ce n'était que des vies, qu'il a tuées.
+Aurait-il alors pleurer avec nous ?
+La grande tristesse de cette histoire c'est qu'on a pas eu de temps pour entendre ses retours.
+Les autorités on préférait le tuer.
+Pourquoi nous avons accepter de nous regrouper sous l'expression "Je suis Charlie" alors qu'il n'était plus là pour la recevoir ? alors qu'elle était là juste pour lui.
+Je n'y suis pas allé, je ne savais pas vraiment pourquoi à ce moment là, je sentais qu'on avait fait une grosse bêtise. Et qu'on faisait une bêtise encore plus grosse de se regrouper ce jour là. Ce jour là, Je me suis rasé le crâne pour la première fois de ma vie.
+
+Aujourd'hui, je me demande pourquoi les forces armées de notre territoire utilise des armes létales ?
+Je suis sûr que des ingénieurs serait faires des armes précises, performantes et non-létales.
+Mais, depuis, je me suis relaissé pousser mes beaux cheuveux.
+Et tant que nous resterons obsédé.e.s par l'image que nous souhaitons données, il sera très facile de nous contrôler, de nous faire chanter pour être bien sûr d'être au bon endroit de la société...
+Je me dit qu'il y en a qui ont dû bien se frotter les mains.
+___
+
+
+Nous ne pouvons rien.
+Car il n'existe que l'esspace d'acceptation,
+Même la soumission est d'abord une acceptation.
+Nous ne pouvons rien.
+Et ce n'est qu'ainsi que nous allons nous entendre. En sachant que nous ne pouvons rien.
+Tout ce que nous souhaiterons ou désirerons ne pourra être souhaiter ou désirer par l'autre.
+Il est seulement possible qu'il accepte.
+___
+
+
+Jamais rien ne pourra être moins important.
+___
+
+
+On ne donne pas des tapes sur les fesses des gens.
+Pas non plus sur les fesses des femmes, même pas sur les fesses de ta femme.
+Et si, par malheur, elle-même te supplie, refuser d'abord, refuser serait la moindre des choses...
+Lui demander pourquoi, après avoir refuser, à la limite ?
+Mais d'abord le vivre mal, oui!
+Parce qu'il ne peut pas y avoir d'autres raisons qu'un putain de mal-être pour avoir un plaisir à faire un geste comme celui-ci.
+Tu as beau dire tout ce que tu veux, il ne peut pas y avoir autre chose,
+qu'une putain d'inquiétude d'un gamin de 4 ans toujours frustré de ne pas avoir niqué sa mère.
+Va te faire enculé.
+___
+
+
+La nature n'a pas de distance.
+Ce n'est pas parce que nous ne nous obsédons pas pour quelque chose qu'elle n'existe pas.
+Et même les plus obsédés mentent lorsqu'ils disent qu'ils pensent toujours à ceci ou cela.
+Nous savonsque c'est un mensonge car nous connaissons la nature des choses : 
+Tout va et vient.
+Nous en sommes les témoins.
+Le témoin des mouvements et des objets part-il ?
+Qu'elle est sa place dans la nature ? De quelle distance en est-il séparé ?
+___
+
 
 
 

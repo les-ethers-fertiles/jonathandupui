@@ -3,7 +3,8 @@ title: "AU BOUT DE CETTE JETÉE"
 date: 2016-12-15T00:29:41-06:00
 tags: ["quotes"]
 ---
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h4SsIbtZ244" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+**à lancer avant de lire**
 
 # Au bout de cette jetée
 

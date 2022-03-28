@@ -3,7 +3,7 @@ title: "AU BOUT DE CETTE JETÉE"
 date: 2016-12-15T00:29:41-06:00
 tags: ["quotes"]
 ---
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h4SsIbtZ244" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="280" height="157" src="https://www.youtube.com/embed/h4SsIbtZ244" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 **à lancer avant de lire**
 
 # Au bout de cette jetée
@@ -16,57 +16,61 @@ Et mon articulation est en carton.
 Mauvais ménage.
 
 À chaque fois, alors,\
-Que\
-je\
-Veux parler,\
-que je veux parler,\
-que je veux parler,\
+Que je veux\
+parler,\
 Je ferai mieux d'aérer mes raisons,\
 je le sais.\
 Où vivre le simple miracle\
 De me faire laver les murs\
 Par les houles du monde.
 
-En attendant ce beau jour.\
-Où j'y finis sécher au pied\
+En attendant ce beau jour,\
+Où je finis sécher au pied\
 de l'unique pilori,\
 De Pointe Noire à Bamako,\
 De Dakar à\
 Hanoï...\
 Long comme la durée de la détresse,\
 Si des gorges se tiennent encore nouées.\
-Large à la violence de l'oppression,\
+Large comme la violence de l'oppression,\
 Si je peux encore écoper les larmes de morts perdues.\
-En attendant que ma honte s'ouvre et laisse au loin\
-Le vaste ciel des excuses imaginaire.
-
-Et des nuages gris de ces cieux-ci,\
+Où ma honte s'ouvre et laisse au loin\
+Le vaste ciel des excuses imaginaires.\
+Laisse aussi les nuages gris de ces cieux-ci,\
 M'en faire répandre et\
-Ses foudres et\
-Les inexorables évaporation\
+Ses foudres et ses pluies.\
+Confiant\
+Des inexorables évaporations.
+
 Imbécile-innocent oubli.
 
 Au bout de cette jetée,\
-Souvenir sur ma face plombée par un certain orage durement présent,\
-Fermerai-je alors mes fenêtres ?\
+Souvenir accroché à ma face plombée de justification par ce\
+"soi-disant" orage noir bien durement présent,\
+Fermerai-je mes fenêtres ?\
 Rongeant piteusement ma pourriture satisfaite,\
-Articulant de travers des éternités nationale\
-Par un corps d'évidente putréfaction, poutant aussi innocent que la durée de la nuit.
+Articulant de travers des éternités nationales\
+Par un corps d'évidente putréfaction, pourtant aussi innocent que la durée de la nuit.
 
-Du bout de cette jetée\
+Du bout de cette jetée,\
+Je vais être franc,\
 Je préfère m'y noyer.
 
 Peut-être deviendrai-je bouteille à la mer,\
 Assez secret pour être aimé.
 
-Que dit l'encre en mon sein de vers?\
-Et d'où vient le papier?\
-L'arbre de la connaissance était de l'ébène\
-Mais on savait respirer l'unique mot des défunts,\
-Quelle serait alors le sujet de mon asphixie de ce jour ?\
-Devrais-je graver, peut-être, sur ma peau transparente de vérité\
-"Chèque vierge et signé"\
+D'où vient le papier?\
+Et que dit l'encre en mon sein de vers?\
+"L'arbre de la connaissance était de l'ébène"\
+Mais on savait reconnaître la voix de la couleur\
+Et respirer le seul mot des défunts.\
+Quel serait alors le sujet de mon asphixie de ce jour ?\
+De demeurer inquiet à peut-être\
+Devoir graver sur ma peau pourtant transparente de vérité :\
+"Chèque vierge et signé".\
 Pour me faire embrasser avec intêret.
+
+Que des mensonges en trop.
 
 Au bout de cette jetée\
 Ma main, par contre, je l'ai.\
@@ -79,7 +83,8 @@ J'attends la houle du monde alors,\
 ou un soleil dur.\
 Pour chasser la moisissure des murs de ma maison.\
 Et faire taire mes travers articulaires.\
-Pour sécher au pilori de la connaissance manquante,\
+Pour sécher au pilori de la connaissance manquante,\ 
+S'il vous plaît,\
 taillée spécialement,\
 tronçonnée spécialement,\
 Pour contraster avec la blanche arrogance\
@@ -94,13 +99,14 @@ Si je venais de mes pieds et de moi-même mal articulés\
 Prêt à boxer la place du village,\
 Pour supplier\
 de m'aider à la tâche\
-D'aimer.\
+d'aimer.\
 Trouverai-je des amoureux ?
 
 Au moins,\
-Ma maison ne moisirait plus\
+Ma maison ne moisirait plus\ 
 Au bout de cette jetée\
-Où le phare s'en est allé.
+Où un phare, paraît-il, s'en est allé.
+
 
 -jo-
 

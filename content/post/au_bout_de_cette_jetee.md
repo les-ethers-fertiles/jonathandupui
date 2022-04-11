@@ -88,7 +88,7 @@ J'attends la houle du monde encore,\
 ou un soleil dur.\
 Pour chasser la moisissure des murs de ma maison.\
 Et y faire taire mes travers articulaires.\
-Pour sécher au pilori de la connaissance manquante,\ 
+Pour sécher au pilori de la connaissance manquante,\
 S'il vous plaît,\
 taillée minutieusement,\
 tronçonnée spécialement,\

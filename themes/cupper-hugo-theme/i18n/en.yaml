@@ -5,9 +5,9 @@
 - id: nav_button_menu
   translation: Menu
 - id: discuss_show_comments_button
-  translation: Show comdddments
+  translation: Pour contribuer
 - id: discuss_comments_disabled
-  translation: Vous pouvez m'envoyer un mail avec vos retours à jonathan.dupui@aquilenet.fr .
+  translation: Vous pouvez m'envoyer un mail avec vos retours à jonathan.dupui@aquilenet.fr, n'hésitez pas.
 - id: discuss_js_disabled
   translation: Enable JavaScript to view Disqus comments.
 - id: dark_theme

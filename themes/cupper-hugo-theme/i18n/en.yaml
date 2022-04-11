@@ -7,7 +7,7 @@
 - id: discuss_show_comments_button
   translation: Show comments
 - id: discuss_comments_disabled
-  translation: Disqus comments are disabled.
+  translation: Disqus comments are disabledfffffffffff.
 - id: discuss_js_disabled
   translation: Enable JavaScript to view Disqus comments.
 - id: dark_theme

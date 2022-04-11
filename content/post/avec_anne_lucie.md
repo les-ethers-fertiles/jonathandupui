@@ -17,7 +17,8 @@ ___
 ___
 
 
-
+"Vivre prend du temps."
+___
 
 
 -jo-

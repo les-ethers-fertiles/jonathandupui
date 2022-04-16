@@ -48,34 +48,42 @@ Imbécile-innocent oubli.
 Au bout de cette jetée,\
 Souvenir accroché à ma face plombée de justification par ce\
 soi-disant orage noir durement présent.\
-À ce croisement,Fermerai-je mes fenêtres ?\
+À ce croisement, fermerai-je mes fenêtres ?\
 Rongeant piteusement ma pourriture satisfaite,\
 Articulant de travers des éternités nationales\
-Au détriment d'une stable éphémérité.\
+Au détriment d'une éphémère stabilité.\
 Une limpide putréfaction,\
 Aussi innocente que la durée de la nuit.
 
 Du bout de cette jetée,\
-La dure franchîse\
-m'attire à la noyade.
+La fraîche franchîse\
+pointe ma noyade.
 
 Peut-être deviendrai-je bouteille à la mer,\
 Assez secret pour être aimé.
 
-D'où vient le papier scéllé sans moi en ma carcasse ?\
-Et que dit l'encre en mon sein de vers ?\
-"L'arbre de la connaissance était le Baobab"\
-Par lui,\
-On savait reconnaître la voix de la seule couleur\
-Et
-respirer le seul mot des défunts.\
-Quel serait alors le sujet de ma réserve aujourd'hui\
+D'où viendrait le papier en mon sein de vers ?\
+Et l'encre ignorée ?
+
+"L'arbre de la connaissance  pousse sur toutes terres."
+
+Par elle,\
+On reconnait le chemin du hasard.\
+
+Qui écrit ?
+
+Et on respire le seul mot des défunts.\
+
+Qui meurt ?
+
+Alors,\
+Quel est le sujet de ma réserve aujourd'hui\
 Si ce n'est de demeurer inquiet, peut-être,\
-De devoir graver sur ma peau pourtant transparente de vérité :\
+À devoir graver sur ma peau pourtant transparente de vérité :\
 "Chèque vierge et signé".\
 Pour me faire embrasser avec intêret.
 
-Que de mensonges en trop
+Que de désirs en trop.
 
 Au bout de cette jetée\
 Ma main, par contre, je l'ai.\
@@ -99,7 +107,7 @@ Par cette moisissure\
 Que seul,\
 Je ne peux enlever.
 
-Que sepasserait-il\
+Que se passerait-il\
 Si je venais de mes pieds et de moi-même mal articulés\
 Prêt à boxer la place du village,\
 Pour supplier\
@@ -108,9 +116,10 @@ d'aimer.\
 Trouverai-je des amoureux ?
 
 Au moins,\
-Ma maison ne moisirait plus\ 
+Ma maison ne moisirait plus\
 Au bout de cette jetée\
 Où un phare, paraît-il, s'en est allé.
+
 
 -jo-
 

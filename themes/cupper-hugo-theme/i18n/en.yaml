@@ -7,7 +7,7 @@
 - id: discuss_show_comments_button
   translation: Pour faire retour ou faire ensemble
 - id: discuss_comments_disabled
-  translation: Vous pouvez m'envoyer un mail avec vos retours à jonathan.dupui@aquilenet.fr, n'hésitez pas.
+  translation: Vous pouvez m'envoyer un mail à jonathan.dupui@aquilenet.fr, n'hésitez pas.
 - id: discuss_js_disabled
   translation: Enable JavaScript to view Disqus comments.
 - id: dark_theme

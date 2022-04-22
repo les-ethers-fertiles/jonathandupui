@@ -1,5 +1,5 @@
 ---
-title: "VIOLET"
+title: "VIOLET.TE.S"
 date: 2016-12-15T00:29:41-06:00
 tags: ["quotes"]
 ---

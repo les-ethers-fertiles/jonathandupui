@@ -54,3 +54,7 @@ Et même ceux qui aprennent trop tôt qu'ils ne dureront pas longtemps.\
 Comme ceux qui ont la muscadovicidose, eux, cest quand même : "vlan, dans ta gueule !" Mais quand même, ils ont le temps de voir leur parents chialer leurs propres conditions de bientôt perdre leur enfant chéri, avec quoi monsieur l'enfant peut enfler d'importance jusqu'à faire mouiller les ménagères de cinquante ballets en chantant de la soupe (oui, les mêmes qu'au cours de self-défense plus d'autres).\
 Ou être le vrai plus triste des adolescent...\
 Non, même ces vernis-ci peuvent juste fermer leur gueule et arrêter de se plaindre.
+
+
+
+-jo-

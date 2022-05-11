@@ -36,8 +36,8 @@ Et là, je me dis, "ouf !" J'ai passé l'âge.\
 Je veux dire qu'aujourd'hui, et depuis un certain moment, je peux toujours foutre sur la gueule d'une vieille.\
 Ça serait assez simple.\
 Peut-être même que la simple phrase : "Je ne veux pas vous faire du mal, mais." Suffirait sans que j'en tape une.\
-Mais au final, ces vieilles, je veux dire même celles qui tenteraient de résister ( Ahah ! La blague !) Les tabassées volemment, même celles-ci sont quand même bien vernis par la vie, au final.\
-Contrairement à ces autres qui, eux, ne sont juste pas du tout aimé par elle.\
+Mais au final, ces vieilles, je veux dire même celles qui tenteraient de résister ( Ahah ! La blague !) Les tabassées violemment, même celles-ci sont quand même bien vernis par la vie, au final.\
+Contrairement à ces autres qui, eux, ne sont juste pas du tout aimés par elle.\
 Les vieilles, elles, ont déjà pût faire...\
 Euh...\
 Culpabiliser, par exemple.\

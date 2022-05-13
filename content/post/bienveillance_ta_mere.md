@@ -94,7 +94,7 @@ tu dis :
 Tu portes la parole, non ?\
 Si tu fais pas gaffe à la raison de la parole,\
 ça risque fort de partir en live,\
-tu sais ?\
+tu sais ?
 
 Si\
 ta parole\

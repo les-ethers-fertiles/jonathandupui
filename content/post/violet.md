@@ -15,29 +15,29 @@ D'avoir réussi à tous les rassembler.\
 Ces morceaux peuvent être précieusement portés, des générations durant.\
 Il y aura toujours un doute.\
 Ils ne pourront être recollés.\
-Ces morceaux peuvent bien se remettre à leur place, donnant, jusqu'au soufflet, l'aussi imposante solidité d'un château de carte.\
+Ces morceaux peuvent bien se remettre à leur place, donnant, jusqu'au soufflet, l'aussi imposante solidité d'un château de cartes.\
 Mais ils ne pourront se relier.\
 Puis, il y aura toujours un doute.\
 Les avons-nous bien tous rassemblés ?\
 Ces morceaux peuvent bien être abandonnés.\
 Y a-t-il réellement besoin d'attendre qu'une ode y soit chantée ?\
-Y a-t-il le besoin du cerceuil de soie pour les y déposer ?\
+Y a-t-il le besoin du cercueil de soie pour les y déposer ?\
 Car, malgré tout, le doute se poursuivra.\
 Sont-ils tous rassemblés ?
 
 Nous pourrions toujours trébucher sur un éclat de nous-même, au détour d'un croisement comme à l'angle d'un couloir.\
-Et comme les écorchures se soignent d'elles-même, Nos bobos alors ne s'infectent que par la panoplie de nos opinions.\
+Et comme les écorchures se soignent d'elles-mêmes, nos bobos alors ne s'infectent que par la panoplie de nos opinions.\
 Nos plaies suintent de nos bons droits.\
 Nous n'avons pas reçu notre diplôme d'enfance.\
 Alors nous sprintons encore dans le brouillard.\
 Et nous espérons ne pas nous faire remarquer.\
 Avons-nous vraiment oubliés que ce n'est qu'en suspens qu'un brouillard nous invite ?\
 Nous sommes des agaçants agacés.\
-Sommes-nous si insatisfaisant d'être autant insatisfaits ?
+Sommes-nous vraiment si insatisfaisants pour nous-mêmes d'être aussi insatisfaits ?
 
 Nous nous posons plus la question.\
 Au moins,\
-Plongeons de notre certitude notre regard dans celui de notre mère certaine pour déceler avec légèreté l'innocence inavouée.
+Plongeons, depuis notre certitude, notre regard dans celui de notre mère certaine pour déceler avec légèreté l'innocence inavouée.
 
 
 ___
